@@ -1,0 +1,2 @@
+2015_mic_retailflagshipstore
+MIC_pulse_of_the_city
